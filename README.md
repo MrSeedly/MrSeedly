@@ -5,7 +5,7 @@
 <br><p align="center"> **dni fruitcake (cosmo x sprout)** (unless CLOSE / PARTY), **dni cookieberry (ginger x sprout)**, **dni dw fandom** (unless close / party).
 
 <br><p align="center"> update ( 11 / 1 / 26 ).
-<br><p align="center"> Due to The ever growing Situation with Coal's "" friends "" and "The FictionKilled Family" , I do NOT associate with with either party til things clear up. **DO NOT BRING THIS DRAMA TO ME AS I AM NOT AFFILIATED WITH ANY SIDE OF IT.**
+<br><p align="center"> Due to The ever growing Situation with Coal's "" friends "" and "The FictionKilled Family" , I do NOT associate with either party til things clear up. **DO NOT BRING THIS DRAMA TO ME AS I AM NOT AFFILIATED WITH ANY SIDE OF IT.**
 <br><p align="center"> I am busy with my shitty mental health, my job / work, and just trying to NOT kill myself in the process. Ponytown has almost become a not safespace for us (me) anymore due to this. Whatever happened on Ponytown with Coal, with her Friends, "The FictionKilled Family" etc etc., again **DOES NOT INCLUDE ME. I WAS A BYSTANDER TO EVERYTHING AND IT WILL STAY THIS WAY.**
 
 <br><p align="center"> <img width="200" height="200" alt="tumblr_10b76dcfe8054c9d21eecebeacae3026_5f613a2e_2048" src="https://github.com/user-attachments/assets/3b31cc5d-b269-48f1-b5ea-e1c474f695ab" />
