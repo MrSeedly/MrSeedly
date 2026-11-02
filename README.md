@@ -6,7 +6,7 @@
 
 <br><p align="center"> **dni fruitcake (cosmo x sprout)** (unless CLOSE / PARTY), **dni cookieberry (ginger x sprout)**, **dni dw fandom** (unless close / party).
 
-<br><p align="center"> ![1000100879](https://github.com/user-attachments/assets/bc7a7c07-3170-42a5-a779-4904e8e6ec0c)
+<br><p align="center"> ![1000100882](https://github.com/user-attachments/assets/62b3a49e-a48c-4d96-a28f-29beeb13f8ac)
 
 <br><p align="center"> *Favorite Sister [Ginger](https://github.com/sw33tsug4rcookie) in the Whole WIDE World!!!*
 <br><p align="center"> *HI [COSMO](https://github.com/CosmoThePastryy) HIII ILYVM <33 /VPLATONIC*
