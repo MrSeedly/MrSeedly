@@ -1,10 +1,12 @@
 <br><p align="center"> <img width="2048" height="171" alt="tumblr_8283675b1863125eaa3dd8bd2cef0311_e513165d_2048" src="https://github.com/user-attachments/assets/ce4af826-ef64-444d-823e-90a62e64d170" />
 
+<br><p align="center"> **All Art Shown is by Glimzy on Tmblr.**
+
 <br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FMrSeedly%2FMrSeedly&label=Volunteers%20!%20&labelColor=%238f1a1a&countColor=%23f47373&style=plastic&labelStyle=none)
 
 <br><p align="center"> **dni fruitcake (cosmo x sprout)** (unless CLOSE / PARTY), **dni cookieberry (ginger x sprout)**, **dni dw fandom** (unless close / party).
 
-<br><p align="center"> <img width="200" height="200" alt="tumblr_10b76dcfe8054c9d21eecebeacae3026_5f613a2e_2048" src="https://github.com/user-attachments/assets/3b31cc5d-b269-48f1-b5ea-e1c474f695ab" />
+<br><p align="center"> ![1000100878](https://github.com/user-attachments/assets/8ecac240-24d6-45f8-96cc-c34bc4368d26)
 
 <br><p align="center"> *Favorite Sister [Ginger](https://github.com/sw33tsug4rcookie) in the Whole WIDE World!!!*
 <br><p align="center"> *HI [COSMO](https://github.com/CosmoThePastryy) HIII ILYVM <33 /VPLATONIC*
