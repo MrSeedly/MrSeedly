@@ -12,4 +12,6 @@
 <br><p align="center"> *HI [COSMO](https://github.com/CosmoThePastryy) HIII ILYVM <33 /VPLATONIC*
 <br><p align="center"> [SCRAPPED ATABOOK 4 A NOW-SUSPENDED-PEST-THEMED GITHUB.](https://katsuwagata.atabook.org/)
 
+<br><p align="center"> ![1000100879](https://github.com/user-attachments/assets/d6c3fd9f-47de-4ebc-93c8-b388e126e923)
+
 <br><p align="center"> <img width="2048" height="171" alt="tumblr_69c414df0f3373f3d0809662098ce5e6_73f60aad_2048" src="https://github.com/user-attachments/assets/b1162455-4ef1-45ed-b828-badab0bea2ee" />
