@@ -1,6 +1,6 @@
 <br><p align="center"> <img width="2048" height="171" alt="tumblr_8283675b1863125eaa3dd8bd2cef0311_e513165d_2048" src="https://github.com/user-attachments/assets/ce4af826-ef64-444d-823e-90a62e64d170" />
 
-<br><p align="center"> **All Art Shown is by Glimzy on Tmblr.**
+<br><p align="center"> **All Art Shown on this Profile + Read.Me is by Glimzy on Tumblr.**
 
 <br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FMrSeedly%2FMrSeedly&label=Volunteers%20!%20&labelColor=%238f1a1a&countColor=%23f47373&style=plastic&labelStyle=none)
 
