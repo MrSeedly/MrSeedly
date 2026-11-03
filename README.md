@@ -6,12 +6,10 @@
 
 <br><p align="center"> **dni fruitcake (cosmo x sprout)** (unless CLOSE / PARTY), **dni cookieberry (ginger x sprout)**, **dni dw fandom** (unless close / party).
 
-<br><p align="center"> ![1000100882](https://github.com/user-attachments/assets/62b3a49e-a48c-4d96-a28f-29beeb13f8ac)
+<br><p align="center"> <img width="240" height="250" alt="tumblr_6f58b3d86d7a4419669e3316de3cb58f_1a58851f_2048" src="https://github.com/user-attachments/assets/886999b1-94f4-417d-8034-d236713192b2" />
 
 <br><p align="center"> *Favorite Sister [Ginger](https://github.com/sw33tsug4rcookie) in the Whole WIDE World!!!*
 <br><p align="center"> *HI [COSMO](https://github.com/CosmoThePastryy) HIII ILYVM <33 /VPLATONIC*
 <br><p align="center"> [SCRAPPED ATABOOK 4 A NOW-SUSPENDED-PEST-THEMED GITHUB.](https://katsuwagata.atabook.org/)
-
-<br><p align="center"> ![1000100879](https://github.com/user-attachments/assets/d6c3fd9f-47de-4ebc-93c8-b388e126e923)
 
 <br><p align="center"> <img width="2048" height="171" alt="tumblr_69c414df0f3373f3d0809662098ce5e6_73f60aad_2048" src="https://github.com/user-attachments/assets/b1162455-4ef1-45ed-b828-badab0bea2ee" />
