@@ -4,7 +4,7 @@
 
 <br><p align="center"> ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FMrSeedly%2FMrSeedly&label=Volunteers%20!%20&labelColor=%238f1a1a&countColor=%23f47373&style=plastic&labelStyle=none)
 
-<br><p align="center"> **dni fruitcake (cosmo x sprout)** (unless CLOSE / PARTY), **dni cookieberry (ginger x sprout)**, **dni dw fandom** (unless close / party).
+<br><p align="center"> **DNI FRUITCAKE (Sprout x Cosmo)** (unless CLOSE / PARTY), **DNI COOKIEBERRY (Ginger x Sprout)**, **DNI DANDY'S WORLD FANDOM** (unless CLOSE / PARTY).
 
 <br><p align="center"> <img width="240" height="250" alt="tumblr_6f58b3d86d7a4419669e3316de3cb58f_1a58851f_2048" src="https://github.com/user-attachments/assets/886999b1-94f4-417d-8034-d236713192b2" />
 
